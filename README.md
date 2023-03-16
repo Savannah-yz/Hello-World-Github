@@ -2,4 +2,4 @@
 
 Hello, I am YANG Zhe at CUHK CENG!
 
-My Student Number is 1155174022.
+My Student Number is .
